@@ -10,7 +10,7 @@ Description.
 
 > **Title:** Bakemono (Working Title) / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:**  / **Lyrics:** MOTHNODE
 
 > **Beat:**
 
