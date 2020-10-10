@@ -8,7 +8,7 @@
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Bakemono (Working Title) / **Featuring:** 
 
 > **Production:**  / **Lyrics:** 
 
