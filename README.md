@@ -8,7 +8,7 @@
 
 Description.
 
-> **Title:** Bakemono (Working Title) / **Featuring:** 
+> **Title:** Bakemono (Working Title) / **Featuring:** MOTHNODE
 
 > **Production:**  / **Lyrics:** 
 
